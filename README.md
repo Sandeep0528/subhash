@@ -1,2 +1,0 @@
-# subhash
-fav person
